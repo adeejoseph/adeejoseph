@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @adeejoseph
+- 👀 I’m interested in helping people win through useful, actionable content.
+- 🌱 I’m currently learning how to use Figma.
+- 💞️ I’m looking to collaborate on all things IT admin. I want to make the life of an administrator easy!
+- 📫 How to reach me ... feel free to share comments and questons on content!
